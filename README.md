@@ -1,1 +1,0 @@
-# solucoes.para.voce
